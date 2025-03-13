@@ -1,4 +1,4 @@
-# SE Ranking Coupon 
+# SE Ranking Coupon [2025] - Claim 20% Discount
 
 ![SE Rannking Feature Image](https://github.com/SEO-Deals/SE-Ranking-Coupon/blob/main/Img/1%20-%20SERanking%20Feature%20Image.png)
 
